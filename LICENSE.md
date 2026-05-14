@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Evernote for Windows helper with instant Evernote for Windows Helper | rich-text-editing + web-clipper. Featuring rich-text-editing and web-clipper, it's the best
 
 
 
